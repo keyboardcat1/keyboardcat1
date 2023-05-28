@@ -1,4 +1,3 @@
-Hello, @keyboardcat1 here
-Interested in anything that is interesting
-If u wanna chat add me on discord: KeyboardKat#0335
+Hello, @keyboardcat1 here!
+Dicord: KeyboardKat#0335
 
