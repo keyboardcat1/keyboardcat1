@@ -1,3 +1,3 @@
 Hello, @keyboardcat1 here!
-Dicord: KeyboardKat#0335
+Discord: keyboardcat1
 
